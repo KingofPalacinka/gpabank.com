@@ -1,1 +1,1 @@
-# gpabank.com
+# išbank.com
